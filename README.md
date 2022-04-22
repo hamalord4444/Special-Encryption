@@ -1,5 +1,5 @@
 # Special-Encryption
-The strongest Encryption Ever ,,,>New Special Encryption 
+The Strongest Encryption Ever ,,,>New Special Encryption 
 
 ## For Sell 
 
